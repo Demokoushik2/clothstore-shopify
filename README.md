@@ -1,0 +1,1 @@
+# clothstore-shopify details
